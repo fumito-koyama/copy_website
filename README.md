@@ -6,3 +6,6 @@
 
 - 松風屋
 http://www.matsukazeya.com/
+
+- とらや
+https://www.toraya-group.co.jp/
